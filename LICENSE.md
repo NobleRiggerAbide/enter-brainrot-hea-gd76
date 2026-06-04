@@ -1,4 +1,4 @@
-#  
+#  no-ban Scripts for enter brainrot heads offers the most advanced enter brainrot heads Script, with auto-heal and auto-collect. Perfect for dominating
 
 
 
